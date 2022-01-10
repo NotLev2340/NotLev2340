@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Lev
+- 👀 I’m interested in gaming and making friends 
+- 🌱 I’m currently learning chinese language
+- 📫 How to reach me: sent a friend request to Not Levඞ#2553 on Discord
+- 💻 Can code in: BDFD (ik thats pretty boring)
